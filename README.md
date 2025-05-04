@@ -1,4 +1,4 @@
-# 馡夢小食光 - 純手工布朗尼專賣店 🍫
+# 馡夢小食光 🍫
 
 ![布朗尼展示](https://images.pexels.com/photos/45202/brownie-dessert-cake-sweet-45202.jpeg)
 
